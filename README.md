@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ceaupid
+- 👋 Hi, I’m Christine ^u^
 - I’m interested in Front-End Web Development
 - You can reach me at allaye.christine@gmail.com
 
